@@ -1,5 +1,5 @@
 ## Hello, I'm ADEOLA
-<a href="https://www.linkedin.com/in/adeola-akintade-17a64b230?lipi=urn%3Ali%3Apage%3Ad_flagship3_profile_view_base_contact_details%3BQzG8mJ6nS%2FS8nX68LQAwVg%3D%3D">
+<a href="https://www.linkedin.com/in/adeola-akintade-17a64b230?lipi=urn%3Ali%3Apage%3Ad_flagship3_profile_view_base_contact_details%3BQzG8mJ6nS%2FS8nX68LQAwVg%3D%3D"> LINKEDIN</a>
 
 
 [Brief Introduction]
